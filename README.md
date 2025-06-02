@@ -1,1 +1,0 @@
-# Pulmo-AI-Dx
